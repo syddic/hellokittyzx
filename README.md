@@ -4,6 +4,4 @@ idk i follow everyone. u wont see me on pt since this is an alt account !!
 
 block me if im on ur dni list / ur on my dni list
 
-main acc is vv4lr !! that account is made for ponytown
-
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=hellokittyzx&label=ㅤviewersㅤ&color=000000&style=flat" alt="hellokittyzx" /> </p>
